@@ -39,7 +39,7 @@ Print do quadro no Jira:
 
 Protótipo criado no Canva:
 
-🎨 
+🎨 [https://link-do-lo-fi](https://www.canva.com/design/DAHDZQLmj0s/_NOGEYCQ0FSP6wvJlbR6vQ/edit?utm_content=DAHDZQLmj0s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 ---
 
