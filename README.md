@@ -47,7 +47,7 @@ Protótipo criado no Figma:
 
 Vídeo apresentando o protótipo e navegação entre as telas:
 
-🎥 
+🎥 [https://link-do-video](https://youtu.be/pgiNw_tMMXU)
 
 ---
 
